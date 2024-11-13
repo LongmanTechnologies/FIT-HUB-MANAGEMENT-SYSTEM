@@ -1,9 +1,9 @@
-follow me on instagram @Certified_Nsm
-             X  @innit_top
+follow me on instagram @Chill.With.Ibraah
+             
 
 Web developer| App developer|
-Teacher| Tech guy
+NetworkAdmin| Tech guru
 
-git repo @njugunaKe
+git repo @LongmanTechnologies
 
-Powerd by Nsm Corp
+Powerd by LongmanTechnologies
